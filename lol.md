@@ -1,3 +1,0 @@
-oookokokok
-asdasdsad
-ljkl
